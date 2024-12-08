@@ -18,7 +18,7 @@
 
  
   
-  ◜ DNI .
+  ‧ ◜ DNI .
      Aside from the obvious, we are not comfortable with TCC or supporters. Endo antis don't interact, it's annoying. Hazbin Hotal and the other show I forgot the name of, I jus...hate that shit. I don't hate yall but I will make fun of you for liking that shit lol.   ⏖ 
   
     
